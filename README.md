@@ -1,3 +1,6 @@
+![16](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/merged2.gif?raw=true)
+![17](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/rog%20text.gif?raw=true)
+![18](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/video.gif?raw=true)
 ![1](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/1.gif?raw=true)
 ![2](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/2.gif?raw=true)
 ![3](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/3.gif?raw=true)
