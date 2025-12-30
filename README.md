@@ -13,5 +13,3 @@
 ![13](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/13.gif?raw=true)
 ![14](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/14.gif?raw=true)
 ![15](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/blob/main/15.gif?raw=true)
-![16](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/raw/refs/heads/main/1output_.mp4)
-![17](https://github.com/Toebbel1984/Lian-Li-Uni-Fan-Wireless-LCD-Animations/raw/refs/heads/main/out_all.mp4.mp4)
